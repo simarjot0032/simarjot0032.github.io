@@ -1,0 +1,1 @@
+Link to my [blog](https://simarjot0032.github.io/simar.github.io/)
